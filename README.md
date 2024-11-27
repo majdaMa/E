@@ -1,1 +1,1 @@
-# Jestem osobą E
+# JesteMY osoba AE
